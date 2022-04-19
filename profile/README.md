@@ -1,1 +1,1 @@
-# `We are the [NDG] -`[`(thendg.com)`](thendg.com)`.`
+# `We are the [NDG] -`[`(thendg.com)`](https://thendg.com)`.`
